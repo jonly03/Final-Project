@@ -1,3 +1,3 @@
 # Final Project SDE
 
-**Build with ❤️ by a great team**
+**Build with ❤️ by a great**
